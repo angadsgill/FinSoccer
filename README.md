@@ -1,1 +1,0 @@
-# FinSoccer.github.io
